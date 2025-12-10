@@ -1,0 +1,1 @@
+# Kolodko-szobor-projekt
