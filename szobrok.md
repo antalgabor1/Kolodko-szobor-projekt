@@ -1,0 +1,60 @@
+Kolodko: Skála Kópé miniszobor
+
+Jelentősége
+A Kolodko-féle Skála Kópé szobor jelentősége a nosztalgiában, a popkultúra emlékezetében és a kortárs budapesti utcaképbe illesztett ironikus, városi legendákra épülő művészetben rejlik. Ez az apró, szívét a vásárlóknak kínáló figura a szocialista korszak ikonikus
+vizuális világát és a városi közösségi élményt idézi meg, miközben a gerillaszobrász, Kolodko Mihály jellegzetes, játékos formanyelvén jelenik meg. A szobor a vásárlói közösségek és a mindennapi városi élet feletti elmélkedést, az egykori tömegeket vonzó vásárlási élményt,valamint az 
+egyén és a közösség kapcsolatát jeleníti meg modern, humoros formában. A figura illeszkedik a gerillaszobrászra jellemző, kis méretű, ironikus alkotások sorába, amelyek történelmi
+és popkulturális utalásokat fűznek Budapest utcáira; a Kópé nyugágyon heverészve,szíve egy pontból kilógva, szimbolikusan „átadja” a vásárlóknak azt, ami az övé. A szobor a Nyugati pályaudvar közelében áll, vizuálisan kapcsolódva az egykori Skála Metró (később Corvin) 
+áruházhoz, így a múlt és a jelen közötti kapcsolatot testesíti meg. Túlmutat 
+a történeti kontextuson, hiszen a kortárs városi kultúrában, a gerillaszobrászati mozgalomban és a popkulturális nosztalgiában is fontos szerepet játszik, egyszerre idézve meg a rendszerváltás előtti városi élet hangulatát és a mai közösség humoros, kritikai szemléletét,
+miközben a városi tér és a közösségi emlékezet szimbólumává válik.
+
+Története 
+A Skála Kópé a 1980-as években vált ismertté a szocialista Magyarországon, mint a Skála áruházak reklámfigurája. Az áruházlánc a korszakban kiemelkedő szerepet töltött be a városi vásárlói életben, és a Kópé karaktere egyszerre volt játékos, kedves és figyelmes,
+mindig a vásárlók felé fordulva. A reklámokban a figura híres szlogenjét mondta: „Én vagyok a Skála Kópé, szívem a vásárlóké!”, amely egyszerre idézte meg a fogyasztói kultúrát és a vidám, közvetlen kapcsolatot a vásárlókkal. A figura az évek során a popkulturális
+emlékezet részévé vált, és sokakban a rendszerváltás előtti városi mindennapokat idézi fel. A modern időkben a gerillaszobrász, Kolodko Mihály, újraalkotta a figurát, apró, játékos szoborként, amely a városi környezetbe integrálja az egykori reklámfigurát. A Nyugati
+pályaudvar közelében felállított szobor a korábbi Skála Metró (később Corvin) áruház helyére utal, és a Kópé figurája itt egy modern nyugágyon heverészve, szíve egy pontból kilógva, mintegy „átadva” a vásárlóknak, idézi az eredeti szlogen játékos jelentését. Így a
+Skála Kópé nemcsak egykor volt ikonikus, hanem a kortárs városi művészetben is tovább él, összekapcsolva a múltat a jelennel.
+
+
+
+
+
+
+Kolodko: Halott Mókus miniszobor
+
+
+Jelentősége
+A Kolodko Mihály „Halott mókus” miniszobra jelentősége abban rejlik, hogy a művész művészeti párbeszédet folytat Maurizio Cattelan híres, kitömött mókusos alkotásával (Bidibidobidiboo), amelyet Kolodko bronz anyagban és pisztollyal reinterpretál, 
+egyszerre hozva létre homage-t és paródiát. A figura helyszínhez kötöttsége szintén fontos: a Columbo szobor mellé a Jászai Mari téren elhelyezve új értelmezési réteget kap, utalva a nyomozós sorozatra, miközben a „halott” mókus motívuma a halál,
+a bűn és a nyomozás témáját is erősíti. A kisplasztika popkulturális utalásokat is hordoz: a mókus a játékos, felismerhető motívumokat idézi, a pisztoly pedig a krimi és a nyomozás világára enged következtetni, így a mű egyszerre szórakoztató és ironikus. 
+Kolodko védjegyét, az utcai, váratlan helyeken felbukkanó bronz miniszobrokat is képviseli, amelyek egyfajta „utcai galériát” hoznak létre Budapesten, gyakran rejtett utalásokkal és finom társadalmi vagy popkulturális kommentárokkal. A „Halott mókus” 
+így egyszerre állít emléket, idéz fel párhuzamokat, és teremt új, önálló jelentést a városi térben, miközben a művészet, a humor és a popkultúra határán mozog, és bevonja a járókelőt a felfedezés élményébe.
+
+Története 
+A Kolodko Mihály „Halott mókus” miniszobra egy kis bronzfigura, amely a budapesti Jászai Mari tér egyik jellegzetes pontján, a Columbo nyomozó szobra közelében található. A szobor története Maurizio Cattelan olasz művész 1996-os Bidibidobidiboo installációjára
+utal: ebben a műben egy kitömött mókus egy szerényen berendezett konyhában ül az asztalnál, és végső kétségbeesésében öngyilkosságot követ el, a provokatív, szatirikus művészet példájaként. A cím, „Ars longa, vita brevis”, latinul azt jelenti: „A művészet örök,
+de az élet rövid”, utalva arra, hogy a műalkotás megmarad, miközben a művész halála után elfelejtődhet. Kolodko a történeti és popkulturális utalást ironikus parafrázissá alakította: a mókus pisztollyal jelenik meg, a Columbo-szobor közelsége pedig a nyomozós 
+sorozat szellemét idézi fel. A „Halott mókus” a járókelők számára kis történetet mesél el: a mókus kétségbeesett tettét, az emberi érzelmek és a halál iránti játékos, groteszk kíváncsiságot, mindezt a városi térben, váratlan helyen, felfedezésre váró formában.
+A szobor így egyszerre őrzi a Bidibidobidiboo történetét és ad új, saját narratívát a budapesti városi térhez.
+
+
+
+
+Kolodko: Chuck Norris miniszobor
+
+
+Jelentősége
+A Kolodko Mihály Chuck Norris-szobra jelentősége abban rejlik, hogy a művész ikonikus popkulturális figurát emel át a kortárs városi művészetbe, ahol a bronz miniszobor egyszerre játékos, ironikus és felfedezésre ösztönző elem a városi térben. A szobor a humor,
+az irónia és a popkulturális utalások kombinációjával a járókelők figyelmét vonja, interaktív élményt teremtve, miközben a karakter hősies, legyőzhetetlen mítoszát új kontextusban jeleníti meg. Kolodko szobrainak védjegye, hogy váratlan, nyilvános helyeken bukkannak
+fel, így a Chuck Norris miniszobor is az utcai gerillaszobrászat részeként egyfajta „utcai galériát” hoz létre, amely a városi tér humoros, ironikus és kreatív újraértelmezését teszi lehetővé. A mű egyszerre tiszteletadás és parafrázis, amely a popkultúra ikonikus 
+figuráit a kortárs művészeti nyelv és a városi élmény részeként újraértelmezi, és így a járókelők számára felfedezésre, játékra és reflexióra inspiráló jelenlétté válik.
+
+Története 
+A Kolodko Mihály Chuck Norris-szobra a budapesti városi térben váratlan helyen, a járókelők számára felfedezésre várva jelent meg, inspirációját pedig Chuck Norris filmes és televíziós karrierjéből merítette. Norris a 1970–1990-es években vált ismertté
+a harcművészetek és az akciófilmek világában, különösen a Walker, a texasi kopó sorozat révén, ahol a legyőzhetetlen, hősies karaktert testesítette meg. A szobor Kolodko reinterpretációjában a figurát bronzból alkotta meg, a városi térbe integrálva, ahol
+a karakter ikonikus mozdulatai és legendás személyisége a járókelők számára közvetlenül érzékelhetővé válik. A miniszobor a művész utcai gerillaszobrászati hagyományait követi, amely szerint a figurák váratlanul bukkannak fel, így a szobor története egyben
+a városi felfedezés és a popkulturális hős jelenlétének újrafelfedezését is magában foglalja. A helyszín, a nyilvános tér, és a figura ikonográfiája révén a szobor története a 20. századi amerikai akciófilmek legendáját köti össze a kortárs budapesti utcai
+művészettel.
+
+
