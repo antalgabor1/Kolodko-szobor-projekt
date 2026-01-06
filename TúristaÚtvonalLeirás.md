@@ -1,4 +1,4 @@
-kérdés a ChatGPT-nek
+kérdés a ChatGPT GPT-5 modellnek: 2 kép az útvonalról, Magyar Színház, Vígszínház, Palatinus, Kossuth Lajos tér, Orsrzágház, II. Rákóczi Ferenc szobra, Nagy Imre szobor, Margitsziget, Centenáriumi emlékmű, Zenélő szökőkút, Ferences kolostor romjai, Japánkert, Zenélő kút, legyen benne közlekedés megemlitve hova hogyan lehet eljutni (amiket elküldtem kép alapján segitene sokat) és a nevezeteségeket is (pl a margitszigeten ha haladunk egyenes ezt és ezt látjuk)
 
 Belvárosi szakasz – Kolodko-szobrok felfűzve (gyalog)
 Magyar Színház → környéke
